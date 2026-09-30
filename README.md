@@ -1,5 +1,3 @@
 Autumn
 
 Maple Leaf
-
-
